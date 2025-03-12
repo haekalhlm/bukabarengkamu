@@ -1,0 +1,2 @@
+# bukabarengkamu
+bukberbarengkamu
